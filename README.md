@@ -1,6 +1,6 @@
 FOR ANY HELP AND ANY ISSUE CONTACT TO WHATSAPP GROUP
 
-https://chat.whatsapp.com/CFmQT9KVsRI3e3XkcZeAF7
+<img src="https://imgur.com/a/wOuBuqe" border="0" />
 
 
 <img src="https://i.ibb.co/pyG0Bz5/kali-linux-android-linux-59161e331187f051a38ce2f1c915f581.png" alt="kali-linux-android-linux-59161e331187f051a38ce2f1c915f581" border="0" />
